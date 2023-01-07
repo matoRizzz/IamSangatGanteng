@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @IamSangatGanteng
-- #JustaNormalPerson
+- Sup, what u lookin in my head 😡
+- #JustanExtraOrdinaryNormalPerson
 <!---
-JustaNormalPerson
+JustanExtraOrdinaryNormalPerson
 --->
